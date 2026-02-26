@@ -113,7 +113,6 @@ If you value clarity, performance, and thoughtful engineering — we’ll work w
 
 📧 shoebrayeen8698@gmail.com  
 🌐 GitHub: https://github.com/Rayeen13  
-🔗 LinkedIn: *(add if available)*
 
 ---
 
